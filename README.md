@@ -1,2 +1,2 @@
 # learning
-I am improving  myskills
+I am improving  myskills.like python and English communication 
